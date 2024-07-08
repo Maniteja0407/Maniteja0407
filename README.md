@@ -2,7 +2,7 @@
 - 👀 I’m interested in Learning New Things
 - 🌱 I’m currently learning Not interested in saying
 - 💞️ I’m looking to collaborate on Microsoft
-- 📫 How to reach me @manitej0407 on insta
+- 📫 How to reach me @manitej0407 github,Instagram
 - 😄 Pronouns: Mani
 - ⚡ Fun fact: get out for something heavier
 
